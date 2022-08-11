@@ -1,4 +1,4 @@
-### Hi there im Brennan 👋
+### Hi there i'm Brennan 👋
 
 
 <!--
